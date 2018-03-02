@@ -1,1 +1,2 @@
-hcon cho dai
+con cho dai an cut.
+hom nay ...
